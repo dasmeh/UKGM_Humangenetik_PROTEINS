@@ -1,1 +1,1 @@
-![image](https://github.com/dasmeh/UKGM_Humangenetik_PROTEINS/assets/6492012/a5e7c45c-e2c5-41b3-ad31-aef3716e82b1)
+![image](https://github.com/dasmeh/UKGM_Humangenetik_PROTEINS/assets/6492012/fa3b1c4f-6b6c-4703-ac6f-c38930afe766)
